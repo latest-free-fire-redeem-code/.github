@@ -1,4 +1,4 @@
-# Here is redeem codes [Free Fire Redeem Code](https://theperfumepack.shop/)
+#  [Click here for Free Fire Redeem Codes](https://theperfumepack.shop/)
 
 Free Fire is one of the most popular battle royale games worldwide, and players are always searching for the latest **Free Fire redeem code** to unlock exclusive rewards. These codes give gamers free access to items like skins, characters, emotes, and diamonds—without spending real money.  
 
